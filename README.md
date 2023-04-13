@@ -1,2 +1,0 @@
-# bgkseniya.github.io
-кодкодкод
