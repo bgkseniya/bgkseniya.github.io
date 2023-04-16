@@ -1,1 +1,0 @@
-# bgkseniya.github.io
